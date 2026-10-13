@@ -1,0 +1,2 @@
+# premium-yataghan-forging-001-yataghan-sword-forging-ottom
+Tired of generic sword tutorials that ignore the yataghan's distinctive reverse curve and Ottoman legacy? This hub is your dedicated blueprint for forging the iconic blade with cultural authenticity.  Most forging guides treat the yataghan as just another curved sword, missing the specific geometry, heat treatment, and historical context that make
